@@ -6,7 +6,7 @@
 ![tumblr_cdd21b2827e83e9494f7bc659c4afb40_d1b4eaf9_500](https://github.com/user-attachments/assets/17ff6cf7-c111-4654-a354-169c2b53ae1c)
 
 
-[guns](https://guns.lol/deathborntodie) 𖦹 [pronouns](https://pronouns.cc/@trophae) 𖦹 [wip]() 𖦹 [atabook](https://trophae.atabook.org/)
+[wip]() 𖦹 [wip]() 𖦹 [wip]() 𖦹 [atabook](https://trophae.atabook.org/)
 
 
 ,, 𝗰+𝗵 𝗳𝗿𝗲𝗲𝗹𝘆, 𝗺𝗼𝘀𝘁 𝗼𝗳 𝘁𝗵𝗲 𝘁𝗶𝗺𝗲 𝗼𝗳𝗳𝘁𝗮𝗯(𝗯𝘂𝘁 𝗜 𝘀𝗲𝗲 𝗲𝘃𝗲𝗿𝘆𝘁𝗵𝗶𝗻𝗴.), 𝗽𝗹𝗲𝗮𝘀𝗲 𝘄𝟐𝗶 𝗮𝗻𝗱 𝗱𝗼 𝗻𝗼𝘁 𝗰𝗼𝗽𝘆!!
