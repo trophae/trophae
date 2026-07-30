@@ -17,7 +17,7 @@
 
 I ignøre ør bløck ppl If I'm uncømførtable  ༊*·˚
 
-I'm søcially very awkward and may seem cøld, but I'm nøt. please read [wip]()/[prønøuns](https://pronouns.cc/@trophae) for more infø
+I'm søcially very awkward and may seem cøld, but I'm nøt. please read [strawpage](https://dmaorginfo1539864214.straw.page)/[prønøuns](https://pronouns.cc/@trophae) for more infø
 
 ㅤ
 
