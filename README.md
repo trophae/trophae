@@ -4,3 +4,5 @@
 
 
 wip
+
+[luv list for my friends](https://ryansluvlist.straw.page)
