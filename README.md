@@ -5,4 +5,6 @@
 
 wip
 
-[luv list for my friends](https://ryansluvlist.straw.page)
+[ata](https://trophae.atabook.org/)
+
+[luv list](https://ryansluvlist.straw.page)
