@@ -13,7 +13,7 @@ Ryan or Doc // also Trophae
 
 7teen
 
-,, c+h freely, most of the time offtab, so please w2i to me. and don't copy !ㅤ 𓐩*·˚
+, c+h freely, most of the time offtab, so please w2i to me. and don't copy ! 𓐩*·˚
 
 [ata](https://trophae.atabook.org/) ⊹ [strawpage WIP]() ⊹ [guns](https://guns.lol/deathborntodie) ⊹ [pronouns](https://pronouns.cc/@trophae)
 
