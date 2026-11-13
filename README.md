@@ -24,7 +24,7 @@ Ryan or Doc // also Trophae
 <details align="CENTER">
   <summary>My friends</summary>
   
-[@Tim-applectrl](https://github.com/Tim-applectrl) ; [@dmutt7](https://github.com/dmutt7) ; [@deepinkman](https://github.com/deepinkman) ; [@IR0NSTR4NG3](https://github.com/IR0NSTR4NG3) ; [@quiet-prince](https://github.com/quiet-prince) ; [@bullseyeing](https://github.com/bullseyeing) ; [@r0wlys](https://github.com/r0wlys) ; [@somethingrotten](https://github.com/somethingrotten) ; [@TONEEDEAFF](https://github.com/TONEEDEAFF) ; [@CSTRNR2NR](https://github.com/CSTRNR2NR) ; [@loosenbuttons](https://github.com/loosenbuttons) ; [@ascrrr](https://github.com/ascrrr) ; [@sspetie](https://github.com/sspetie) ; [@LolKekPA37](https://github.com/LolKekPA37) ; [@caswashere](https://github.com/caswashere) ; [@MelancholicMe](https://github.com/MelancholicMe) + green names !!
+[@Tim-applectrl](https://github.com/Tim-applectrl) ; [@dmutt7](https://github.com/dmutt7) ; [@deepinkman](https://github.com/deepinkman) ; [@IR0NSTR4NG3](https://github.com/IR0NSTR4NG3) ; [@quiet-prince](https://github.com/quiet-prince) ; [@bullseyeing](https://github.com/bullseyeing) ; [@r0wlys](https://github.com/r0wlys) ; [@somethingrotten](https://github.com/somethingrotten) ; [@TONEEDEAFF](https://github.com/TONEEDEAFF) ; [@CSTRNR2NR](https://github.com/CSTRNR2NR) ; [@loosenbuttons](https://github.com/loosenbuttons) ; [@ascrrr](https://github.com/ascrrr) ; [@sspetie](https://github.com/sspetie) ; [@LolKekPA37](https://github.com/LolKekPA37) ; [@caswashere](https://github.com/caswashere) ; [@MelancholicMe](https://github.com/MelancholicMe)
 
 </details>
 
